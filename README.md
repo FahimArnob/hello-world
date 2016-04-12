@@ -1,2 +1,3 @@
 # hello-world
 Just scratching the surface...
+I don't know what I wanna do with computers, but I love them, wanna make something big out of that machine and make me famous!!!
